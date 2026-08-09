@@ -1,4 +1,4 @@
-# Terms of Service — Superzz Nexus
+# Terms of Service - Superzz Nexus
 
 *Last updated: August 2026*
 
